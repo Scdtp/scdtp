@@ -1,9 +1,9 @@
 # Hi there, I'm Rod 👋
 ⚡ Fun fact: 
-Certified Safety officer and self-defense instructor
-NSTP instructor
-Full stack web developer
-Indie game developer
+Certified Safety officer and self-defense instructor.
+NSTP instructor,
+full stack web developer, and 
+indie game developer. Also a certified gamer and Marvel geek.
 
 😍
 
