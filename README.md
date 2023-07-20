@@ -3,7 +3,7 @@
 Certified Safety officer and self-defense instructor.
 NSTP instructor,
 full stack web developer, and 
-indie game developer. Also a certified gamer and Marvel geek.
+indie game developer of Datus quest. Also a certified gamer and Marvel geek.
 
 😍
 
